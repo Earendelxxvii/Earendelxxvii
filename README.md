@@ -2,7 +2,7 @@
 
 ![large_web jpg__1240x510_q85_subject_location-620,254_subsampling-2](https://github.com/Earendelxxvii/Earendelxxvii/assets/134555406/fe574cf3-e7fb-4dab-9aed-3bf49564257a)
 
-<h1 align="center">Greetingst, I'm Earendelxxvii</h1>
+<h1 align="center">Greetings, I'm Steven Santos</h1>
 <h3 align="center">Information Technology I Security Systems I Artificial Intelligence Enthusiast l Machine Learning I Blockchain Engineering I Smart Contract Developer I Researcher</h3>
 
 I am a prospective graduate of the associate’s program in Information Technology at Pennsylvania State University. In combining a rigorous academic experience with professional roles in the public and private sector, I have exemplified my keen ability to troubleshoot difficult analytical problems, collaborate on teams, and utilize my service delivery skills at a professional level. I hold great interest in remote-based opportunities concentrating on areas such as software development, along with a verifiable history of success as both a student and worker. Career focal points also include project coordination, time management, research efforts, customer care, and numerous facets of leadership excellence. 
