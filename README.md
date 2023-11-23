@@ -1,4 +1,7 @@
 
+
+![large_web jpg__1240x510_q85_subject_location-620,254_subsampling-2](https://github.com/Earendelxxvii/Earendelxxvii/assets/134555406/fe574cf3-e7fb-4dab-9aed-3bf49564257a)
+
 <h1 align="center">Greetingst, I'm Earendelxxvii</h1>
 <h3 align="center">Information Technology I Security Systems I Artificial Intelligence Enthusiast l Machine Learning I Blockchain Engineering I Smart Contract Developer I Researcher</h3>
 
